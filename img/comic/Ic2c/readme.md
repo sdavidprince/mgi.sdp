@@ -1,0 +1,1 @@
+"I Cease to Care"  is a weekly one-panel comic series by S David Prince a Nigerian creator reclaiming his art through the IndieWeb. Exploring the beauty of letting go, mental disconnection from societal chaos, and finding joy in unfinished things. New panels published every Saturday.
